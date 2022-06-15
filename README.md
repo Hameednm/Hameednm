@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my learning journey 
 - 📫 How to reach me: https//twitter.com/m_abdoolhameed
 - 😄 Pronouns: He/Him/His
-- ⚡ Fun fact: I am a full time medical student 
+- ⚡ Fun fact: I love eating food😋
 -->
